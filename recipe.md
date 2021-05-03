@@ -1,4 +1,0 @@
-Just sauté some onions and tomato in oil. You need both, chopped and pureed tomato. Season with salt, turmeric, cumin powder, and red chili powder. This mix needs to cook until the tomatoes are almost reduced to a rich, saucy blend.
-Then comes the USP of this Indian Style breakfast – the egg pockets. Carefully make little pockets or wells in the tomato gravy and crack eggs into it taking good care not to break the yolk. Then cover the dish with a lid and let the eggs cook in steam (while the stovetop flame is on low).
-
-Once the whites of the eggs are set, your shakshuka is ready to be dished out.
